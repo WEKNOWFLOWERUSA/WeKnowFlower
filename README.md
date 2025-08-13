@@ -1,3 +1,4 @@
 # WeKnowFlower
-[weknowflower.com]
-# Visit out website at weknowflower.com for premium verified THC-A companies
+
+# Visit our [website] (weknowflower.com)
+For premium verified THC-A companies.
